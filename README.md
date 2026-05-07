@@ -1,7 +1,9 @@
 <p align="center">
   <img src="https://i.pinimg.com/736x/55/08/bc/5508bceb1b851c3564611c801bbb0e5e.jpg" width="300" >
 </p>
-
+<p align="center">
+  "𝓑𝓇𝒶𝒹𝓁𝑒𝓎 𝒮𝓂𝒾𝓉𝒽 , 𝓜𝑜𝓉𝑜𝒢𝒫"
+  
 <p align="center">
 ;[ ᴍᴀᴄʜ & ᴍᴏᴛᴏ ];
 
@@ -14,5 +16,7 @@
 <a href="https://guns.lol/theatticcyte">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://machinimatic.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://pronouns.cc/@machinimaticorg">ᴘʀᴏɴᴏᴜɴᴄꜱᴄᴄ</a> 
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/Mxwke1HnEDQAAAAC/sports-wow.gif" width="300" >
+  <img src="https://i.pinimg.com/736x/2b/ff/09/2bff09915e0342cf0dfa5fb427699c95.jpg" width="300" >
 </p>
+<p align="center">
+  "𝒞𝒽𝒶𝓇𝓁𝑒𝓈 𝓛𝑒𝓁𝑒𝓇𝒸 , 𝓕𝑜𝓇𝓂𝓊𝓁𝒶 𝟣"
