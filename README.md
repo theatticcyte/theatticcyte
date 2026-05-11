@@ -18,7 +18,7 @@
 <a href="https://guns.lol/theatticcyte">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://machinimatic.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://pronouns.cc/@machinimaticorg">ᴘʀᴏɴᴏᴜɴᴄꜱᴄᴄ</a> 
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/62/7a/77/627a77e40340725f60ca211ee57e6b66.jpg" width="300" >
+  <img src="https://i.pinimg.com/736x/39/95/52/399552cecd47ad7bcce731051e39077b.jpg" width="300" >
 </p>
 <p align="center">
   
