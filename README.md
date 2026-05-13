@@ -18,7 +18,7 @@ Severe Anxiety/Depression & Possible PDID system
 
 
   <p align="center">
-<a href="https://guns.lol/theatticcyte">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://machinimatic.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://pronouns.cc/@machinimaticorg">ᴘʀᴏɴᴏᴜɴᴄꜱᴄᴄ</a> 
+<a href="https://guns.lol/thegarageforge">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://thegarageforge.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://pronouns.cc/@thegarageforge">ᴘʀᴏɴᴏᴜɴᴄꜱᴄᴄ</a> 
 
 <p align="center">
   <img src="https://i.pinimg.com/736x/4b/4c/e1/4b4ce1056091106f742c721e4ae6cae5.jpg" width="300" >
