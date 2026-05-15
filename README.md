@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/f0/a0/d0/f0a0d0e28adaa36647716e23d2e10aea.jpg" width="300" >
+  <img src="https://i.pinimg.com/originals/8c/61/f7/8c61f7e3f9f8bffa3033ea0008651980.gif" width="300" >
 </p>
 <p align="center">
  
@@ -21,7 +21,7 @@ Severe Anxiety/Depression & Possible PDID system
 <a href="https://guns.lol/thegarageforge">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://thegarageforge.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://pronouns.cc/@thegarageforge">ᴘʀᴏɴᴏᴜɴᴄꜱᴄᴄ</a> 
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/77/35/41/77354193fe1887cad39cd93099fa91e4.jpg" width="300" >
+  <img src="https://i.pinimg.com/736x/c6/98/ff/c698ff7761b54a810fa6ba3a69a03fa2.jpg" width="300" >
 </p>
 <p align="center">
   
