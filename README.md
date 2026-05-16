@@ -18,7 +18,7 @@ Severe Anxiety/Depression & ?
 
 
   <p align="center">
-<a href="https://guns.lol/thegarageforge">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://thegarageforge.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://pronouns.cc/@thegarageforge">ᴘʀᴏɴᴏᴜɴᴄꜱᴄᴄ</a> 
+<a href="https://guns.lol/thegarageforge">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://thegarageforge.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://en.pronouns.page/@TheGarageForge">ᴘʀᴏɴᴏᴜɴs</a> 
 
 <p align="center">
   <img src="https://i.pinimg.com/736x/c6/98/ff/c698ff7761b54a810fa6ba3a69a03fa2.jpg" width="300" >
