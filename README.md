@@ -14,7 +14,7 @@
 ʙᴀꜱɪᴄ ᴅɴɪ / ᴅɴɪ ɪꜰ ᴜʀ ᴀꜱꜱᴏᴄɪᴀᴛᴇᴅ ᴡɪᴛʜ ᴍʏ ᴇx (ᴅ3ꜱᴛʀ0ʏ.3ʀ)
 
 <p align="center">
-Severe Anxiety/Depression & Possible PDID system
+Severe Anxiety/Depression & ?
 
 
   <p align="center">
